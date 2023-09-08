@@ -1,3 +1,4 @@
+![logo](https://github.com/ksingh9398/ksingh9398/blob/1b20bc522633cc6c93032e08ec0575f36a777afd/nnn.jpg)
 ![logo](https://github.com/ksingh9398/ksingh9398/blob/main/banner2.jpg)
 <h1 align="center">Hi 👋, I'm Navin Singh</h1>
 <h3 align="center">I want to become a Data Scientist,</h3>
