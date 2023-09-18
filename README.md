@@ -1,5 +1,4 @@
 ![logo](https://github.com/ksingh9398/ksingh9398/blob/1b20bc522633cc6c93032e08ec0575f36a777afd/nnn.jpg)
-![logo](https://github.com/ksingh9398/ksingh9398/blob/main/banner2.jpg)
 <h1 align="center">Hi 👋, I'm Navin Singh</h1>
 <h3 align="center">I want to become a Data Scientist,</h3>
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/55389276/140866485-8fb1c876-9a8f-4d6a-98dc-08c4981eaf70.gif">
