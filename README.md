@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **ksingh9398@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1vI7b9MBa4OUrm8FjIP64XEh1KBOycxni/view?usp=drive_link](https://drive.google.com/file/d/1vI7b9MBa4OUrm8FjIP64XEh1KBOycxni/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19g3QKvNIzL_fgDxAJ-yHpwFfOf_Mrj8f/view?usp=drive_link]
 
 - ⚡ Fun fact **I feel fun to make Reels😃**
 
