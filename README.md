@@ -11,6 +11,7 @@
 - 🔭 I’m currently working on **Research and collection data on Stress**
 
 - 🌱 I’m currently learning **Data Science**
+- - 📄 Know about my experiences [https://github.com/ksingh9398/Navin-Singh/blob/main/Navin.pdf]
 
 - 📝 I regularly write articles on [https://www.blogger.com/blog/posts/5242412626389406526](https://www.blogger.com/blog/posts/5242412626389406526)
 
@@ -18,9 +19,7 @@
 
 - 📫 How to reach me **ksingh9398@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/ksingh9398/Navin-Singh/blob/main/Navin.pdf]
-
-- ⚡ Fun fact **I feel fun to make Reels😃**
+- ⚡ Fun fact **I Like to make Reels😃** [https://www.instagram.com/singhnavin11/}
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
