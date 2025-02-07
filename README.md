@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **ksingh9398@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/ksingh9398/Navin-Singh/blob/main/my%20new%20resume.pdf]
+- 📄 Know about my experiences [https://github.com/ksingh9398/Navin-Singh/blob/main/Navin.pdf]
 
 - ⚡ Fun fact **I feel fun to make Reels😃**
 
