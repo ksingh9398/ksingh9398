@@ -11,7 +11,7 @@
 - 🔭 I’m currently working on **Research and collection data on Stress**
 
 - 🌱 I’m currently learning **Data Science**
-- - 📄 Know about my experiences [https://github.com/ksingh9398/Navin-Singh/blob/main/Navin.pdf]
+- - 📄 Know about my experiences [https://github.com/ksingh9398/Navin-Singh/blob/main/Navin_Resume.pdf]
 
 - 📝 I regularly write articles on [https://www.blogger.com/blog/posts/5242412626389406526](https://www.blogger.com/blog/posts/5242412626389406526)
 
