@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **i am Creative and Hard Working Person**
 
-- 📫 How to reach me 👉 **navinjee9398@gmail.com** and fro WhatsApp 👉 https://wa.me/+918757569686
+- 📫 How to reach me 👉 **navinjee9398@gmail.com** and for WhatsApp 👉 https://wa.me/+918757569686
 
 - ⚡ Fun fact **I Like to make Reels😃** [https://www.instagram.com/singhnavin11/}
 
